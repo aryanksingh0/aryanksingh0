@@ -1,4 +1,4 @@
-# 👋 Hey there, I’m Aryan Kumar Singh (@aryanksingh0) 🚀
+# 👋 Hey there, I’m Aryan 🚀
 
 Welcome to my corner of the coding universe! 🌌 
 
